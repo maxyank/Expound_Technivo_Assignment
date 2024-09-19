@@ -22,5 +22,5 @@ Contact
 For questions or feedback, contact:
 
 Name: Mayank Shukla
-Email: your-mayankshukla547019@gmail.com
+Email: mayankshukla547019@gmail.com
 
